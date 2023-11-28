@@ -1,0 +1,1 @@
+- Assets filesin de proyektde istifade etdiyim shekillerdir.
